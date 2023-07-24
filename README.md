@@ -1,0 +1,1 @@
+# twitter-new-logo-svg-format_mediumquality_
